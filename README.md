@@ -1,1 +1,2 @@
-ano rechto huli pera
+ano ivko huli pera
+janikove gule chlpate mastne
